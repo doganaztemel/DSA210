@@ -1,1 +1,0 @@
-# GDP-per-Capita-and-Women-s-Tertiary-Education
